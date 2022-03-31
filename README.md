@@ -1,6 +1,6 @@
 # matab-e-shifai Privacy Policy
 
-Privacy Policy for matab e shifia
+Privacy Policy for matab e shifai
 
 If you require any more information or have any questions about our privacy policy, please feel free to contact us by email at privacypolicy.
 
